@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Python
 - 🤔 I’m looking for help with ... AWS
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... amanuelgilay@gmail.com
+- 📫 How to reach me: ... amanuelgilay35@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I am out going
 
