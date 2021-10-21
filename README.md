@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... amanuelgilay35@gmail.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I Became a Father recently
+- ⚡ Fun fact: ... I Became a Father Recently
 
